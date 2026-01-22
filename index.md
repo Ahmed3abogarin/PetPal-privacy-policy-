@@ -101,7 +101,7 @@ We may update this Privacy Policy from time to time. Any changes will be reflect
 
 If you have any questions or concerns about this Privacy Policy or data practices, you may contact us at:
 
-**Email:** [support@petpal.app](mailto:support@petpal.app)
+**Email:** [ahmedadilabogarin@gmail.com](mailto:ahmedadilabogarin@gmail.com)
 
 ---
 
