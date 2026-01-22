@@ -1,5 +1,3 @@
-# PetPal-privacy-policy
-
 # PetPal Privacy Policy
 
 **Last updated:** January 2026
